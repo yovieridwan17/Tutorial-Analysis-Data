@@ -1,1 +1,1 @@
-Halo teman-teman, di repositori ini gw sediakan
+Halo teman-teman, di repositori i
