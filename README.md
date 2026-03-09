@@ -1,1 +1,1 @@
-Halo teman-teman, di repositori
+Halo teman-teman, di repositor
