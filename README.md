@@ -1,1 +1,1 @@
-Halo teman-teman, di repo
+Halo teman-teman, di rep
