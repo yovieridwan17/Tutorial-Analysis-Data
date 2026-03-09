@@ -1,1 +1,1 @@
-Halo teman-teman, di rep
+Halo teman-teman, di re
